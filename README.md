@@ -11,4 +11,4 @@ Ceylon cinnamon is a powerful spice that has numerous health benefits, including
 
 At Man In Touch, we believe that self-care is essential for every man, and we're committed to providing the best products to support your well-being. Whether you're looking for vitamins and supplements, skincare products, or grooming essentials, we have everything you need to look and feel your best.
 
-So why wait? Start investing in your self-care routine today and experience the benefits of a healthier, happier you. Visit our website at manintouch.com to browse our selection of men's self-care products and start your journey to better health and wellness.
+So why wait? Start investing in your self-care routine today and experience the benefits of a healthier, happier you. Visit our website at [manintouch.com](https://www.manintouch.com/) to browse our selection of men's self-care products and start your journey to better health and wellness.
