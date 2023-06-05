@@ -3,7 +3,7 @@ Are you tired of neglecting your self-care routine? It's time to focus on your w
 **[Vitamins and Supplements Online Store in North Bergen NJ](https://www.manintouch.com/collections/vitamin-supplements)**
 If you're looking for a reliable online store to purchase your vitamins and supplements, look no further than Man in Touch. This Store offer a wide range of products to support your health and wellness goals.
 
-**[Neuro Plus Brain and Focus]([https://www.manintouch.com/collections/vitamin-supplements](https://www.manintouch.com/collections/vitamin-supplements/products/neuro-plus-brain-and-focus-formula)**
+**[Neuro Plus Brain and Focus](https://www.manintouch.com/collections/vitamin-supplements/products/neuro-plus-brain-and-focus-formula)**
 For those looking to boost their cognitive function and improve their focus, Neuro Plus Brain and Focus is an excellent supplement option. This supplement contains all-natural ingredients that support brain health, including vitamins, minerals, and herbal extracts.
 
 **[Ceylon Cinnamon Supplement](https://www.manintouch.com/collections/vitamin-supplements/products/ceylon-cinnamon)**
